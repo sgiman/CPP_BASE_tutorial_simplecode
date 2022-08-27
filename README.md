@@ -20,6 +20,7 @@ Google Disk (copy examples for lessons: 1..70):
 
 https://drive.google.com/file/d/1h1NalrJwHRNySfrHhBBrt3PFl7G8invm/view?usp=sharing
 
+![c-600x401](https://user-images.githubusercontent.com/7030369/187005511-6cfbff94-062c-4004-a3f9-bf66540cd57f.jpg)
 
 
 **sgiman @ 2022**
